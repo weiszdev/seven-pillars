@@ -184,6 +184,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "exercise and movement (added as the 10th factor in radical hope, 2020)". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
 
+**[ON SCREEN: "Exercise snacks: 10 squats × 10 a day"]**
+
+Here's a simple boost: 10 air squats, 10 times a day, spread out. In a big UK study, about three short vigorous bursts a day were linked to lower cancer death rates. That's observational, and the squat routine itself hasn't been tested for cancer, so think of it as a stepping stone, not a substitute. Use a chair or a counter if you need to, and check with your care team if you have joint pain, recent surgery, low blood counts or bone metastases.
+
 What it doesn't prove: This was colon cancer with a coach. Muscle and joint side effects were more common in the exercise group (about 19% vs 12%). Start slowly. Autoimmune outcomes not gathered here.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
