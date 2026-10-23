@@ -14,7 +14,7 @@ Whole-food nutrition. Clean water. Sleep. Movement. Core nutrients. Spirit — p
 
 **[ON SCREEN: "Strong · Observational · No effect found"]**
 
-For each one we'll tell you honestly how strong the research is. Some pillars, like movement, have real trial evidence. Others are mostly observational. And a few popular ideas have been tested and didn't pan out — we'll tell you that too.
+For each one we'll tell you honestly how strong the research is. Some pillars, like movement, have real trial evidence. Others are mostly observational. And a few popular ideas have been tested and didn't pan out — we'll tell you that too. We'll also share experiential evidence — patterns from Dr. Kelly Turner's study of more than 1,000 radical remissions. That's a source of hope and good questions, kept separate from the trials, because without a comparison group it can't show cause.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
 
@@ -52,6 +52,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 - *(Small RCT subgroup)* PREDIMED randomized trial subgroup: Mediterranean diet + extra-virgin olive oil, invasive breast cancer HR 0.32 (0.13–0.79). Only 35 cases; a secondary outcome. [PMID 26365989]
 - *(Observational)* NutriNet-Santé cohort, 68,946 adults: highest vs lowest organic-food score, cancer HR 0.75 (0.63–0.88). Absolute difference small; organic buyers tend to be healthier overall. [PMID 30422212]
+
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "radically changing your diet". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
 
 What it doesn't prove: No strong autoimmune outcome trials were gathered here. The organic finding may partly reflect lifestyle, income and activity.
 
@@ -168,6 +172,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 - *(Phase 3 RCT)* CHALLENGE phase 3 randomized trial, 889 colon cancer survivors after chemo: a 3-year coached exercise program, disease-free survival HR 0.72 (0.55–0.94) and overall survival HR 0.63 (0.43–0.94) at ~8 years. [PMID 40450658]
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "exercise and movement (added as the 10th factor in radical hope, 2020)". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: This was colon cancer with a coach. Muscle and joint side effects were more common in the exercise group (about 19% vs 12%). Start slowly. Autoimmune outcomes not gathered here.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
@@ -213,6 +221,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 Some of you asked about NutriDyn's "Fab 5." Those are a commercial practitioner brand. For each one there's a simpler, often cheaper option: D3 5000 with K2 — or store-brand d3, dose from your blood test; Omega Pure EPA-DHA 720 — or fish twice a week or store-brand fish oil; UltraBiotic Daily Multi-Strain — or yogurt, kefir, sauerkraut; Fruits & Greens — or frozen vegetables and fruit; Essential Multi — or store-brand multivitamin.
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "using herbs and supplements". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: 5,000 IU vitamin D is well above the 2,000 IU tested in VITAL, and people whose levels are already high may not need more. Probiotics may be a concern when immunity is very low. Supplements can interact with treatment.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
@@ -253,6 +265,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 - *(RCT — null)* STEP randomized trial, 1,802 bypass patients: prayer by strangers did not reduce complications; patients told they were being prayed for had slightly more. [PMID 16569567]
 - *(Small RCTs)* Gratitude-practice trials generally show small improvements in well-being (pooled effect not verified here).
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "deepening your spiritual connection", "increasing positive emotions", "following your intuition". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: The benefit seen with attendance may come partly through community, support and healthier habits. Faith is worth practicing for its own sake, without needing a hazard ratio.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
@@ -291,6 +307,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 - *(Observational meta-analysis)* Meta-analysis of 148 studies, 308,849 people: stronger social relationships, 50% higher odds of survival (OR 1.50, 1.42–1.59). [PMID 20668659]
 - *(RCT — null for survival)* Randomized trial, 235 women with metastatic breast cancer: group support did not extend survival (HR 1.23, 0.88–1.72) but improved mood and pain, most in distressed women. [PMID 11742045]
+
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "embracing social support", "releasing suppressed emotions", "having strong reasons for living", "taking control of your health". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
 
 What it doesn't prove: Autoimmune outcomes not gathered here. Boundaries are about safety and peace, not cutting people off lightly.
 
