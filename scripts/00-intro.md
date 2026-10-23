@@ -12,7 +12,7 @@ Whole-food nutrition. Clean water. Sleep. Movement. Core nutrients. Spirit — p
 
 **[ON SCREEN: "Strong · Observational · No effect found"]**
 
-For each one we'll tell you honestly how strong the research is. Some pillars, like movement, have real trial evidence. Others are mostly observational. And a few popular ideas have been tested and didn't pan out — we'll tell you that too.
+For each one we'll tell you honestly how strong the research is. Some pillars, like movement, have real trial evidence. Others are mostly observational. And a few popular ideas have been tested and didn't pan out — we'll tell you that too. We'll also share experiential evidence — patterns from Dr. Kelly Turner's study of more than 1,000 radical remissions. That's a source of hope and good questions, kept separate from the trials, because without a comparison group it can't show cause.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
 

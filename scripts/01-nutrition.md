@@ -22,6 +22,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 - *(Small RCT subgroup)* PREDIMED randomized trial subgroup: Mediterranean diet + extra-virgin olive oil, invasive breast cancer HR 0.32 (0.13–0.79). Only 35 cases; a secondary outcome. [PMID 26365989]
 - *(Observational)* NutriNet-Santé cohort, 68,946 adults: highest vs lowest organic-food score, cancer HR 0.75 (0.63–0.88). Absolute difference small; organic buyers tend to be healthier overall. [PMID 30422212]
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "radically changing your diet". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: No strong autoimmune outcome trials were gathered here. The organic finding may partly reflect lifestyle, income and activity.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**

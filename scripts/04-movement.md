@@ -21,6 +21,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 - *(Phase 3 RCT)* CHALLENGE phase 3 randomized trial, 889 colon cancer survivors after chemo: a 3-year coached exercise program, disease-free survival HR 0.72 (0.55–0.94) and overall survival HR 0.63 (0.43–0.94) at ~8 years. [PMID 40450658]
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "exercise and movement (added as the 10th factor in radical hope, 2020)". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: This was colon cancer with a coach. Muscle and joint side effects were more common in the exercise group (about 19% vs 12%). Start slowly. Autoimmune outcomes not gathered here.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**

@@ -28,6 +28,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 Some of you asked about NutriDyn's "Fab 5." Those are a commercial practitioner brand. For each one there's a simpler, often cheaper option: D3 5000 with K2 — or store-brand d3, dose from your blood test; Omega Pure EPA-DHA 720 — or fish twice a week or store-brand fish oil; UltraBiotic Daily Multi-Strain — or yogurt, kefir, sauerkraut; Fruits & Greens — or frozen vegetables and fruit; Essential Multi — or store-brand multivitamin.
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "using herbs and supplements". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: 5,000 IU vitamin D is well above the 2,000 IU tested in VITAL, and people whose levels are already high may not need more. Probiotics may be a concern when immunity is very low. Supplements can interact with treatment.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
