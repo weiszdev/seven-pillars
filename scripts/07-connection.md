@@ -22,6 +22,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 - *(Observational meta-analysis)* Meta-analysis of 148 studies, 308,849 people: stronger social relationships, 50% higher odds of survival (OR 1.50, 1.42–1.59). [PMID 20668659]
 - *(RCT — null for survival)* Randomized trial, 235 women with metastatic breast cancer: group support did not extend survival (HR 1.23, 0.88–1.72) but improved mood and pain, most in distressed women. [PMID 11742045]
 
+**[ON SCREEN: "Experiential evidence — Radical Remission"]**
+
+One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "embracing social support", "releasing suppressed emotions", "having strong reasons for living", "taking control of your health". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
+
 What it doesn't prove: Autoimmune outcomes not gathered here. Boundaries are about safety and peace, not cutting people off lightly.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
