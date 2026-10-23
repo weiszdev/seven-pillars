@@ -1,3 +1,3 @@
 # The Seven Pillars
 
-Static site + video scripts (StayTheWay). Research/education only, not medical advice.
+Static site + video scripts (NotDrWise). Research/education only, not medical advice.
