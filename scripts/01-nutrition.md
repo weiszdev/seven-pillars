@@ -26,6 +26,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "radically changing your diet". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
 
+**[ON SCREEN: "Experiential — Chris Wark, Chris Beat Cancer"]**
+
+You may know Chris Wark's story: stage IIIC colon cancer in 2003, surgery, then a raw plant-based diet with lots of vegetable juice and big salads, plus faith and lifestyle changes. It's a hopeful story. But it's one person, and surgery alone cures a share of stage III colon cancers, so we can't tell how much the diet did.
+
 What it doesn't prove: No strong autoimmune outcome trials were gathered here. The organic finding may partly reflect lifestyle, income and activity.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**

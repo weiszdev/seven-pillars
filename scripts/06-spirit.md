@@ -27,6 +27,8 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 One more lens, kept separate from the trials: in Dr. Kelly Turner's study of 1,000+ radical remissions, people often reported "deepening your spiritual connection", "increasing positive emotions", "following your intuition". That's experience, not proof — inspiring, but with no comparison group it can't show cause.
 
+Cancer survivor Chris Wark also often credits his faith and prayer as part of his journey. That's a personal story, not a study, but it may encourage you.
+
 What it doesn't prove: The benefit seen with attendance may come partly through community, support and healthier habits. Faith is worth practicing for its own sake, without needing a hazard ratio.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**

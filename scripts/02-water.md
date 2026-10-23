@@ -22,6 +22,10 @@ Now, let's be honest about the evidence, because you deserve the truth, not hype
 
 - *(Regulatory / exposure science)* Lead, arsenic, nitrate and some PFAS have documented harms at certain levels (EPA drinking-water standards).
 
+**[ON SCREEN: "Theoretical — no human outcome studies"]**
+
+Some of you have asked about Dr. Thomas Cowan's book Cancer and the New Biology of Water, which sees cancer as a disturbance of structured water in cells. It's an interesting idea, but it's a theory only, and no human studies have tested it. Mistletoe, one therapy he discusses, didn't extend survival in a 2024 randomized pancreatic cancer trial.
+
 What it doesn't prove: There is no trial showing that filtering already-safe water improves cancer or autoimmune outcomes, so we give no effect size here on purpose.
 
 **[ON SCREEN: "This is education, not medical advice. Talk with your own care team before changing anything, especially supplements."]**
