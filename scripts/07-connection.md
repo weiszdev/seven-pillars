@@ -1,6 +1,6 @@
 # Episode 7 — Connection & Healthy Boundaries
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 7 of 7 — Connection & Healthy Boundaries"]**
 

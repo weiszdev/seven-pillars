@@ -1,6 +1,6 @@
 # Episode 6 — Spirit: Prayer, Gratitude & Faith
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 6 of 7 — Spirit: Prayer, Gratitude & Faith"]**
 

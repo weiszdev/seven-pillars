@@ -1,6 +1,6 @@
 # Episode 5 — Core Nutrient Sufficiency
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 5 of 7 — Core Nutrient Sufficiency"]**
 
