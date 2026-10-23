@@ -1,6 +1,6 @@
 # Episode 4 — Movement
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 4 of 7 — Movement"]**
 

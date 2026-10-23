@@ -1,6 +1,6 @@
 # Episode 2 — Clean Water & Fewer Toxins
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 2 of 7 — Clean Water & Fewer Toxins"]**
 

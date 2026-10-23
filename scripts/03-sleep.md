@@ -1,6 +1,6 @@
 # Episode 3 — Sleep & Daily Rhythm
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 3 of 7 — Sleep & Daily Rhythm"]**
 

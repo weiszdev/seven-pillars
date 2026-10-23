@@ -1,6 +1,6 @@
 # Episode 1 — Whole-Food Nutrition
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 1 of 7 — Whole-Food Nutrition"]**
 
