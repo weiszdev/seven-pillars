@@ -1,6 +1,6 @@
 # Episode 0 — Introduction: The Seven Pillars
 
-*Target length: 60–90 s · Series: The Seven Pillars (StayTheWay)*
+*Target length: 60–90 s · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "The Seven Pillars — free & low-cost foundations"]**
 

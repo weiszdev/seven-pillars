@@ -2,7 +2,7 @@
 
 # Episode 0 — Introduction: The Seven Pillars
 
-*Target length: 60–90 s · Series: The Seven Pillars (StayTheWay)*
+*Target length: 60–90 s · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "The Seven Pillars — free & low-cost foundations"]**
 
@@ -31,7 +31,7 @@ Every study and link is at weiszdev.github.io/seven-pillars/. Let's start with t
 
 # Episode 1 — Whole-Food Nutrition
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 1 of 7 — Whole-Food Nutrition"]**
 
@@ -70,7 +70,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. You can e
 
 # Episode 2 — Clean Water & Fewer Toxins
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 2 of 7 — Clean Water & Fewer Toxins"]**
 
@@ -109,7 +109,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. Next: the
 
 # Episode 3 — Sleep & Daily Rhythm
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 3 of 7 — Sleep & Daily Rhythm"]**
 
@@ -147,7 +147,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. Rested bo
 
 # Episode 4 — Movement
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 4 of 7 — Movement"]**
 
@@ -185,7 +185,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. Next: cor
 
 # Episode 5 — Core Nutrient Sufficiency
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 5 of 7 — Core Nutrient Sufficiency"]**
 
@@ -230,7 +230,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. Our bodie
 
 # Episode 6 — Spirit: Prayer, Gratitude & Faith
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 6 of 7 — Spirit: Prayer, Gratitude & Faith"]**
 
@@ -270,7 +270,7 @@ You'll find every study and link at weiszdev.github.io/seven-pillars/. Faith was
 
 # Episode 7 — Connection & Healthy Boundaries
 
-*Target length: 2–3 min · Series: The Seven Pillars (StayTheWay)*
+*Target length: 2–3 min · Series: The Seven Pillars (NotDrWise)*
 
 **[ON SCREEN: "Pillar 7 of 7 — Connection & Healthy Boundaries"]**
 
